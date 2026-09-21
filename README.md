@@ -1,0 +1,2 @@
+# VcardAiNetworking_privacypolicy
+VcardAiNetworking_privacypolicy
